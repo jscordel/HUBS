@@ -1,4 +1,4 @@
-# HUBS
+# Cover Letter
 
 To whom it may concern,
 
